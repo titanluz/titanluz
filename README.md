@@ -19,7 +19,7 @@ my stupid safe server fandom areas map
 </p>
 
 <p align="center">
- <a href="https://github.com/jaxtoy">
+ <a href="https://github.com/user-attachments/assets/7d33caec-d0e7-4e74-a3a2-787022dbb264">
 <img src="https://github.com/user-attachments/assets/7d33caec-d0e7-4e74-a3a2-787022dbb264" />
  </a>
 </p>
