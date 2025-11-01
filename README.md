@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-hi hello im *michael* or *luz* or jax or uzi or whatever. my many names. yes. i'm 15 i use he/they pronouns read this https://rentry.co/jaxful
+hi hello im *michael* or *luz* or jax or uzi or whatever. my many names. yes. i'm 15 i use he/they pronouns read this https://rentry.co/friendofowlsntitans 
 </p>
 
 <p align="center">
