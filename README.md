@@ -14,7 +14,7 @@ my ponytown boundaries are no heavy inspo or copying my ponies and no roleplayin
 </p>
 
 <p align="center">
-my stupid safe server fandom area
+my stupid safe server fandom areas map
  ↓↓↓
 </p>
 
