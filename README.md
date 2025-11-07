@@ -10,7 +10,7 @@ hi hello im *michael* or *luz* or jax or uzi or whatever. my many names. yes. i'
 </p>
 
 <p align="center">
-my ponytown boundaries are no heavy inspo or copying my ponies and no roleplaying nor covering my pony (which is mostly done as weak ass ragebait) just be normal idk
+my ponytown boundaries are no heavy inspo or copying my ponies and no roleplaying nor covering my pony (which is mostly done as weak ass ragebait) just be normal idk. if i unfriended you then no personal feelings dude i just didn't remember you or i'm following your dni
 </p>
 
 <p align="center">
