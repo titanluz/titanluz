@@ -10,8 +10,17 @@ hi hello im *michael* or *luz* or jax or uzi or whatever. my many names. yes. i'
 </p>
 
 <p align="center">
-my ponytown boundaries are no heavy inspo or copying my ponies and no roleplaying nor covering my pony (which is mostly done as weak ass ragebait) just be normal idk. if i unfriended you then no personal feelings dude i just didn't remember you or i'm following your dni
+my ponytown boundaries are no copying/taking heavy inspiration from my ponies, no roleplaying (unless we are close) and just don't be a weirdo. i'd rather not interact with you if you are a countryhuman/hetalia/etc fan 
 </p>
+
+<p align="center">
+also i don't really know how to socialise or how to keep friends so you're better off approaching me first and not expecting me to talk to you randomly because i don't think most people want me around lmao
+</p>
+
+<p align="center">
+oh yea i follow dnis very very closely because i am a very paranoid person. if you get unfriended/unfollowed it's because you have hazbin hotel in your dni 
+</p>
+
 
 <p align="center">
 my stupid safe server fandom areas map
